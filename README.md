@@ -1,0 +1,2 @@
+# riches.net
+riches.net
